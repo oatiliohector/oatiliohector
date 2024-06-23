@@ -1,5 +1,7 @@
 # Hi, you can call me Heck(tour)! 👋
 
+*🦅 Engineer.* I'm passionate about building things, guard dogs, guns, math, martial arts, and freedom.
+
 ![Iron Man](https://media.giphy.com/media/3lvqNXheb679S/giphy.gif)
 
 
